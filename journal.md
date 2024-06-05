@@ -1,3 +1,4 @@
+05.06.2024 - TAIKO Airdrop
 04.06.2024
 03.06.2024 - REGEN images
 02.06.2024 - Voting on Build
